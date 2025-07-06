@@ -21,7 +21,7 @@
 
 
 **Steps**
-1. Soke paneer cubes in hot water for 15-20 mins
+1. Soak paneer cubes in hot water for 15-20 mins
 2. Rinse spinach and drain water completely
 3. Fry 2 chillies in 1 tblsp oil
 4. Add spinach and cashews and saute for 3-4 minutes. Keep stock of moisture for blending. Cool completely
@@ -34,5 +34,5 @@
 11. Saute garam masala for 2 mins
 12. Remove cardamoms, cloves, cinnamon and keep them aside
 13. Pour 1.5 cups water and make a puree
-14. Mix tomato and spinach puree and let it boil in low flame, till it bubbles
+14. Mix tomato, spinach puree, kasuri methi and let it boil in low flame, till it bubbles
 15. Mix paneer
