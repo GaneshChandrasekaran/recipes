@@ -25,6 +25,12 @@
 4. Make paste of ginger, garlic, mint and green chilli or slit the green chilli in half, grate ginger, mince garlic and chop mint leaves
 5. On medium flame, heat 2 tbsp oil in a pot
 6. Add bay leaf, cinnamon, cloves, shahi jeera, cardamom, star anise, stone flower
-7. Add onions
+7. Add onions and fry for a minute
+8. Add paste from step 4
+9. Add vegetables and fry for 1-2 mins
+10. Add 3 cups of water and bring to rolling boil
+11. Add rice after draining water completely
+12. Keep on low heat and cook for 10-15 mins
+13. Add 1 tsp salt
 
 
