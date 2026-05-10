@@ -4,3 +4,4 @@
 [Pulao](https://github.com/GaneshChandrasekaran/recipes/blob/main/vegetarian/pulao.md)  
 [Adai](https://github.com/GaneshChandrasekaran/recipes/blob/main/vegetarian/adai.md)  
 [Borani Banjan](https://github.com/GaneshChandrasekaran/recipes/blob/main/vegetarian/borani_banjan.md)  
+[Chai](https://github.com/GaneshChandrasekaran/recipes/blob/main/vegetarian/chai.md)  
